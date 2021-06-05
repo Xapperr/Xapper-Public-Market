@@ -20,3 +20,5 @@ Sağlıcakla Kalın Aşşağıya SS koyucam market Sistemi Hakında Bilgileri G�
 
 
 + Sistem Hayla Yapılyıor Bitince İlk İşim Paylaşmak
+
+https://cdn.discordapp.com/attachments/850034365563928596/850034512041082890/unknown.png
