@@ -24,6 +24,3 @@ Sağlıcakla Kalın Aşşağıya SS koyucam market Sistemi Hakında Bilgileri G�
 ![unknown](https://user-images.githubusercontent.com/77535032/120904635-d865c480-c655-11eb-9e55-8d72ab47e737.png)
 
 ![unknown](https://user-images.githubusercontent.com/77535032/120904648-ea476780-c655-11eb-8817-11ca0394fb7b.png)
-
-![unknown](https://user-images.githubusercontent.com/77535032/120904674-195dd900-c656-11eb-974d-1911dbe4e1f7.png)
-
