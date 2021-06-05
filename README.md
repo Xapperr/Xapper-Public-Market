@@ -1,6 +1,6 @@
 # Xapper-Public-Market
 
-Evet Bu Sistemin Aynısını Yaptım Sistemi Hemen Size Açıklayıyım
+Evet Bu Sistemin Publiclerdeki Market Sistemlerin Aynısını Yaptım Sistemi Hemen Size Açıklayıyım
 
 Bildiğiniz Üzere Publiclerde Ses Veya Mesaj Kasarak Coin Topluyorsunuz Bu Sistemin Aynısını Bende Sizin İçin Yaptım
 
