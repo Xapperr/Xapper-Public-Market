@@ -4,6 +4,8 @@ Evet Bu Sistemin Publiclerdeki Market Sistemlerin Aynısını Yaptım Sistemi He
 
 Bildiğiniz Üzere Publiclerde Ses Veya Mesaj Kasarak Coin Topluyorsunuz Bu Sistemin Aynısını Bende Sizin İçin Yaptım
 
+Bu Coinler İle Bişeyler Satın Alıyorsunuz Falan İşte Öyle
+
 Peki Bu Sistemi Nasıl Ulaşabilrim
 
 # Bu Sunucuya Gelerek
