@@ -17,3 +17,6 @@ Sağlıcakla Kalın Aşşağıya SS koyucam market Sistemi Hakında Bilgileri G�
 + Bi Altyapının Üstüne  Yaptım Yalan Söylemek İstemeem 
 
 # Sağlıcakla Kalın Beklemekde Kalın 😋
+
+
++ Sistem Hayla Yapılyıor Bitince İlk İşim Paylaşmak
